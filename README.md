@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 ## My name is Erika Vebriyanti, you can call me Erika.
-### I'm a Web Developer
+### I'm a Web Developer & Web Designer
      
 ## My Skills and Knowledge
 
